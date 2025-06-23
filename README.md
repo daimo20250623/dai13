@@ -13,7 +13,7 @@
 
 点击访问：<a href="https://hls-19.pages.dev/">黑料社</a>
 
-点击访问：<a href="https://cg863.pages.dev/">51爆料每日大赛</a>
+点击访问：<a href="https://cg55-6.pages.dev/">新91黑料专区网</a>
 
 点击访问：<a href="https://pi100.pages.dev/">15吃瓜今日黑料</a>
 
@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://hl374.pages.dev/">黑料爆料网</a>
 
-点击访问：<a href="https://cg55-6.pages.dev/">新91黑料专区网</a>
+点击访问：<a href="https://cg5-2.pages.dev/">今日吃瓜不打烊</a>
 
 点击访问：<a href="https://hl374.pages.dev/">51吃瓜网</a>
 
